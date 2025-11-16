@@ -1,1 +1,2 @@
-![IMG_20251111_132158](https://github.com/user-attachments/assets/2c98e54c-32a0-4bef-9742-0894e9c0465c)
+![IMG_20251116_113018](https://github.com/user-attachments/assets/a708b307-8c41-452f-a81b-b59ec6c03e47)
+i love my sister yeyeyeye hiii ghost hii it's ur bro def <33
