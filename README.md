@@ -1,2 +1,2 @@
-![IMG_20251116_113018](https://github.com/user-attachments/assets/a708b307-8c41-452f-a81b-b59ec6c03e47)
-i love my sister yeyeyeye hiii ghost hii it's ur bro def <33
+hi i love my friends ok that's all
+![kevin-spencer](https://github.com/user-attachments/assets/24a26713-45b4-4623-86b9-1d80d6049bde)
